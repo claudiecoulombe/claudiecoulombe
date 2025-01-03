@@ -1,5 +1,5 @@
 ## Hi there 👋
-I’m **Claudie Coulombe**!
+I’m **Claudie Coulombe**  (pronounced “klo-dee koo-lomb”)!
 
 🎯 **Data Professional Specializing in People Analytics**
 
